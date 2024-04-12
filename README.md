@@ -1,1 +1,0 @@
-# K1Vladislav1.githob.io
